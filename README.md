@@ -1,0 +1,2 @@
+- 👋 @vankata-sudo jestem
+- 👀 lubie mocka 
